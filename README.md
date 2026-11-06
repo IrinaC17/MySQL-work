@@ -236,7 +236,8 @@ This work was completed as part of a **Level 3 Data Technician Skills Bootcamp**
 
 ## 📫 Connect With Me
 
-- 💼 LinkedIn: www.linkedin.com/in/irina-cicio
+- 💼 LinkedIn:🔗 **LinkedIn:**  
+https://www.linkedin.com/in/irina-cicio-b94885448/
 - 📧 Email: [c_dyna_c@yahoo.com](mailto:c_dyna_c@yahoo.com)
 
 ---
